@@ -1,1 +1,3 @@
-# B-i-T-p-AI_Tu-n-2
+Họ tên: Hoàng Đình Nguyên
+MSSV: 31251027872
+GVHD: GS.TS Nguyễn Trường Thịnh
